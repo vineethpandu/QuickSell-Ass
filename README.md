@@ -1,5 +1,8 @@
 ## Project View
 
-<kbd>![](https://res.cloudinary.com/anshumxn09/image/upload/v1692799526/test/quickSell2_pjyru9.png)</kbd>
 
-<kbd>![](https://res.cloudinary.com/anshumxn09/image/upload/v1692799514/test/quickSell_nycbcs.png)</kbd>
+
+https://github.com/vineethpandu/QuickSell-Ass/assets/80325182/d4cb5923-809f-477a-a7a9-d274feaa9876
+
+<a></a>
+
